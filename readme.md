@@ -9,6 +9,7 @@
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/Capture4.PNG)
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/Capture5.PNG)
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/Capture6.PNG)
+![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/Capture7.PNG)
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/Capture8.PNG)
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/2018-05-10%20(1).png)
 ![alt text](https://github.com/Ahmed223/T-Shirts-E-commerce/blob/master/2018-05-10%20(2).png)
